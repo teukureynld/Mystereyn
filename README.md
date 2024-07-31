@@ -1,4 +1,3 @@
-![image](https://github.com/user-attachments/assets/407990f4-a343-4e8e-8f5a-ad90b19e6497)
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/teukureynldi) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/teuku-reynaldi-465457262/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BoREULHpEQ9ey7YsbC7YdbA%3D%3D) 
 
